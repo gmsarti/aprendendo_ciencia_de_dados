@@ -18,8 +18,13 @@ Tópicos que cedo ou tarde devem estar presentes aqui:
 ## Contato
 
 Você pode me encontrar nesses lugares aqui:
+
 [email](gmsarti@gmail.com)
+
 [site](gmsarti.github.io)
+
 [twitter](twitter.com/gmsarti)
+
 [instagram](instagram.com/gmsarti)
+
 [youtube](https://www.youtube.com/channel/UC9ebso0cDD-T_0VjUDh2pRQ?)
